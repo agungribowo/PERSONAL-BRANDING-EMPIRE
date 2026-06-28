@@ -16,3 +16,5 @@ karena penyimpanan di luar tanpa atap, pas musim hujan banyak air nya, kami nung
 Herbisida utk kacang tanah
 1. Agil -jika kusus rumput daun sempit termasuk tukulan gabah.
 2. Cadre - jika gulma campur daun sempit dan daun lebar
+
+Wah, terimakasih atas insight nya, kemarin menggunakan Cadre, tapi takaran nya kebanyakan, harusnya cukup 1 tutup dan 1 tangki untuk semua, tapi karena pengoperasian tangki penyemprotan kurang cermat jadi sampai perlu 3 tangki. Apakah benar dengan pemberian Gandasil B akan cepat pulih kembali ? Ijin follow ya mas, siapa tahu bisa diskusi lebih lanjut terkait praktik pertanian dilapangan. 🙏
